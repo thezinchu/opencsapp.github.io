@@ -5,7 +5,7 @@
 ## 代表性 dp
 
 ## 网申备注
-
+24fall已暂停外部招生https://cse.mit.edu/admissions/sm/
 ## 项目特点
 
 ## 申请季实时信息
